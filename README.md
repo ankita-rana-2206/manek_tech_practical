@@ -1,0 +1,1 @@
+# manek_tech_practical
